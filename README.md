@@ -8,6 +8,7 @@ Czy warto kupować akcje przed wynikami? Dlaczego pobicie prognoz to za mało?</
 
 ________________________________________
 
+Materiał na youtube: https://www.youtube.com/watch?v=8NBG3_aw-4A&t=18s
 
 **Opis problemu**:
 
